@@ -4,7 +4,7 @@
 - 💞️ I’m not looking for a collaborate 
 - 📫 How to reach me u can reach me on discord My DC:0PWMK0 
 - 😄 Pronouns: Male
-- ⚡ Fun fact: Im playing Division 2 / ASA / ASE / CoD / Fn
+- ⚡ Fun fact: Im playing Division 2 / ASA / ASE / GTA / CoD / Fn
 
 <!---
 0PWMK0/0PWMK0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
